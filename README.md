@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Noor.
+- 👀 I’m interested in traveling, photography, and cinema.
+- 🌱 I’m currently learning how to code!
+- 💞️ I’m looking to collaborate on new websites and seeking a tutor.
+- 📫 How to reach me: nalhomsi@gmail.com
